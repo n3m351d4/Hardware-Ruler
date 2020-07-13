@@ -1,6 +1,6 @@
 
 
-## Hardware-Ruler
+## Hardware-Ruler DC7495 Gold|Blue
 ### Выпущено 20 шт
 Just a Hardware Ruler redesigned for DC 7495
 Эта штука достанется самому лучшему докладчику зимы 2019 просто так!
