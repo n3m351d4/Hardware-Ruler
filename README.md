@@ -1,3 +1,8 @@
+## Hardware-Ruler DC7495 Silver|Black
+### Выпущено 20 шт
+Just a Hardware Ruler redesigned for DC 7495
+Эта штука достанется самому лучшему докладчику 2020 просто так!
+Если вы хотите тоже такую, то пишите в телеграм @N3M351DA для заказа!
 
 
 ## Hardware-Ruler DC7495 Gold|Blue
