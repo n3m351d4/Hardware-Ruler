@@ -8,7 +8,7 @@
 ### Выпущено 5 шт
 Если вы хотите тоже такую, то пишите в телеграм @N3M351DA для заказа!
 ![Иллюстрация к проекту](https://github.com/n3m351d4/Hardware-Ruler/blob/master/HWW/%D0%A1%D0%BD%D0%B8%D0%BC%D0%BE%D0%BA1.JPG)
-![Иллюстрация к проекту](https://github.com/n3m351d4/Hardware-Ruler/blob/master/HWW/%D0%A1%D0%BD%D0%B8%D0%BC%D0%BE%D0%BA.JPG)
+![Иллюстрация к проекту](https://github.com/n3m351d4/Hardware-Ruler/blob/master/HWW/photo_2020-09-05_23-47-53.jpg)
 
 ## Hardware-Ruler DC7495 Silver|White
 ### Выпущено 10 шт
