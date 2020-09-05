@@ -1,3 +1,9 @@
+## Hardware-Ruler Эльбрус Blue|White
+### Выпущено 5 шт
+Если вы хотите тоже такую, то пишите в телеграм @N3M351DA для заказа!
+![Иллюстрация к проекту](https://github.com/n3m351d4/Hardware-Ruler/blob/master/elbrus/%D0%A1%D0%BD%D0%B8%D0%BC%D0%BE%D0%BA1.JPG)
+![Иллюстрация к проекту](https://github.com/n3m351d4/Hardware-Ruler/blob/master/elbrus/photo_2020-09-05_23-54-03.jpg)
+
 ## Hardware-Ruler HWW Red|White
 ### Выпущено 5 шт
 Если вы хотите тоже такую, то пишите в телеграм @N3M351DA для заказа!
